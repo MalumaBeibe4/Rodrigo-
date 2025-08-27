@@ -1,1 +1,1 @@
-# Rodrigo-
+# Estrategias de innovación disruptiva -
